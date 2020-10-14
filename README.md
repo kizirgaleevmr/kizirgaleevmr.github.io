@@ -1,2 +1,2 @@
-# kizirgaleevmr.github.io
-Мой первый опубликованный сайт
+# Kizirgaleev Marsel
+Мои домашние задания
